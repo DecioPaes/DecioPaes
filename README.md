@@ -3,6 +3,9 @@
 
 [Linkedin](https://www.linkedin.com/in/DecioPaesMonteiroJunior/)
 
+* Data Science student
+* Data Analytics student
+* Machine Leaning student
 
 
 <!--
