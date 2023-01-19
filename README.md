@@ -1,6 +1,7 @@
 ### Hi there 👋
 #**Décio Paes Monteiro Júnior**
-[Linkedin](htts://www.linkedin.com/in/DecioPaesMonteiroJunior/)
+
+[Linkedin](https://www.linkedin.com/in/DecioPaesMonteiroJunior/)
 
 
 
