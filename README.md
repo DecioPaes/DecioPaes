@@ -1,7 +1,6 @@
 ### Hi there 👋
 #**Décio Paes Monteiro Júnior**
 
-![DecioPaes](C:\Users\DMQX\Downloads\decio1.png)
 
 [Linkedin](https://www.linkedin.com/in/DecioPaesMonteiroJunior/)
 
